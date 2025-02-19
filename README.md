@@ -20,7 +20,7 @@ Juventus
 
 Flamengo
 
-Bayern could be said to be a bit yes
+Bayern, well...a little
 
 Stuttgart
 
