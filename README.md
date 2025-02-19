@@ -1,3 +1,6 @@
+## Hey!, if you are interested go check out my Google form on my profile! Thank u ♡
+
+
 # CAPTAIN TSUBASA FAN
 
 I love my babies Victorino and Hino —
