@@ -1,6 +1,6 @@
 # CAPTAIN TSUBASA FAN
 
-I love my babies Victorino and Hino
+I love my babies Victorino and Hino —
 I love my babies Gino and Aoi
 ## ⊹ ࣪ Nerazzurri ˖ 𝟏𝟏:💙🖤
 
