@@ -1,6 +1,3 @@
-## Hey!, if you are interested go check out my Google form on my profile! Thank u ♡
-
-
 # CAPTAIN TSUBASA FAN
 
 I love my babies Victorino and Hino —
@@ -17,15 +14,17 @@ ____________________
 
 Inter (obviously)
 
-Internacional (Only by Rochet — until December 2026)
+Internacional (Only because... Rochet — until December 2026)
 
-Juventus
+Flamengo (sometimes I get angry with them)
 
-Flamengo
-
-Bayern, well...a little
+Bayern, well...a little?
 
 Stuttgart
+
+AEK Athens
+
+Hamburgo
 
 ## Selections that I support (from "•" down only for the 2026 World Cup if they qualify)
 
@@ -51,7 +50,7 @@ Hajime No Ippo — 𝗦𝗨𝗣𝗘𝗥 𝗙𝗔𝗡 𝗢𝗙 𝗦𝗘𝗡𝗗�
 
 Ashita No Joe — Fan of the protagonist
 
-Berserk — The manga is so good
+Berserk — The manga is so good, ilikegriffithsorry
 
 Elfen Lied — I loved it, I really liked it. Although I don't remember much now. (I watched the anime in 2023)
 
