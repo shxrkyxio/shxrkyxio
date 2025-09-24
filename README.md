@@ -12,31 +12,27 @@ Anyway, you can send me a message on ig if you want.
 ____________________
 # CLUBS I SUPPORT
 
-Inter (obviously)
+Inter (obviouslyyy)
 
-Internacional (Only because... Rochet — until December 2026)
+Internacional (Only because... Rochet and Prado)
 
-Flamengo (sometimes I get angry with them)
+# I don't support them but they are like family :3
 
-Bayern, well...a little?
+- 𝗗𝗼𝗿𝘁𝗺𝘂𝗻𝗱 🐝
+- 𝗕𝗮𝘆𝗲𝗿𝗻 🍓
+  (P.S.: I LOVE BELLINGHAM BROTHERS RAWRR) 
 
-Stuttgart
+## Selections that I support (from "-" down only for the 2026 World Cup if they qualify)
 
-AEK Athens
-
-Hamburgo
-
-## Selections that I support (from "•" down only for the 2026 World Cup if they qualify)
-
-Uruguay 🇺🇾 (OBVIOUSLY, IT'S MY COUNTRY ♡)
+𝗨𝗿𝘂𝗴𝘂𝗮𝘆 🇺🇾 (OBVIOUSLY, IT'S MY COUNTRY ♡)
 
 ↑↓
 
-Italy 🇮🇹 ♡
+𝗜𝘁𝗮𝗹𝘆 🇮🇹 ♡
 
-- Denmark 🇩🇰
+- 𝗗𝗲𝗻𝗺𝗮𝗿𝗸 🇩🇰
 
-- China 🇨🇳
+- 𝗖𝗵𝗶𝗻𝗮 🇨🇳
 ____________________
 # 𝗟𝗶𝗸𝗲's;;
 
