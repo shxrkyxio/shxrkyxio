@@ -20,7 +20,8 @@ Internacional (Only because... Rochet and Prado)
 
 - 𝗗𝗼𝗿𝘁𝗺𝘂𝗻𝗱 🐝
 - 𝗕𝗮𝘆𝗲𝗿𝗻 🍓
-  (P.S.: I LOVE BELLINGHAM BROTHERS RAWRR) 
+
+(P.S.: I LOVE BELLINGHAM BROTHERS RAWRR) 
 
 ## Selections that I support (from "-" down only for the 2026 World Cup if they qualify)
 
