@@ -56,3 +56,5 @@ Dororo — Tahomaru and Hyakkimaru fan here
 Beyblade Burst — 𝗕𝗶𝗴 𝗳𝗮𝗻 𝗼𝗳 𝗣𝗵𝗶, 𝗜 𝗹𝗼𝘃𝗲 𝘁𝗵𝗲 𝘃𝗶𝗹𝗹𝗮𝗶𝗻𝘀
 
 Captain Tsubasa (OBVIOUSLY) — 𝗔 𝗳𝗮𝗻 𝘀𝗶𝗻𝗰𝗲 𝗰𝗵𝗶𝗹𝗱𝗵𝗼𝗼𝗱, 𝗜 𝗹𝗼𝘃𝗲 𝗛𝘆𝘂𝗴𝗮, 𝗦𝗮𝗻𝘁𝗮𝗻𝗮 𝗮𝗻𝗱 𝗔𝗼𝗶 𝘀𝗼 𝗺𝘂𝗰𝗵. 𝗜 𝗹𝗼𝘃𝗲 𝗮𝗹𝗹 𝘁𝗵𝗲 𝗮𝗿𝗰𝘀 𝗼𝗳 𝘁𝗵𝗲 𝗺𝗮𝗻𝗴𝗮.
+
+Uma Musume: Pretty Derby — Big fan since 2021, I honestly love running so I find it very entertaining. I'm not such a fan of the fact that it has exploded in popularity these days...
