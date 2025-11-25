@@ -1,60 +1,116 @@
-# CAPTAIN TSUBASA FAN
+<div align="center">
 
-I love my babies Victorino and Hino —
-I love my babies Gino and Aoi
-## ⊹ ࣪ Nerazzurri ˖ 𝟏𝟏:💙🖤
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦  
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+
+# 𐙚 CAPTAIN TSUBASA FAN 𐙚
+
+I love my babies **Victorino** and **Hino** —  
+I love my babies **Gino** and **Aoi**
+
+## ⊹ ࣪ Nerazzurri ˖ 𝟏𝟏 · 💙🖤
 
 ![My baby Aoi](https://64.media.tumblr.com/7068b3fd8b3f10604cb451ca2997452c/6746f002c856adf6-c6/s640x960/ca5cace4f30cf06a8a29296ca1dadf5933f5cc41.gif)
 
 ![My baby Gino](https://64.media.tumblr.com/4e3ea1f10bbfa6d059e94b736a376c88/98ba4f55bcbe4cda-1b/s540x810/e0182efd15bd2d722dc94860cbe94affb43d959c.gif)
 
-Anyway, you can send me a message on ig if you want. 
-____________________
-# CLUBS I SUPPORT
+﹕Anyway, you can send me a message on **IG** if you want. 𐙚ᐟ  
+</div>
 
-Inter (obviouslyyy)
+---
 
-Internacional (Only because... Rochet and Prado)
+## ୨ CLUBS I SUPPORT ৎ
 
-# I don't support them but they are like family :3
+- **Inter** (obviouslyyy)  
+- **Internacional** (Only because... Rochet and Prado)
+- **Cerezo Osaka** (I believe in u, Niko!)
 
-- 𝗗𝗼𝗿𝘁𝗺𝘂𝗻𝗱 🐝
-- 𝗕𝗮𝘆𝗲𝗿𝗻 🍓
+## ୨ They’re not my clubs but feel like family :3 ৎ
 
-(P.S.: I LOVE BELLINGHAM BROTHERS RAWRR) 
+- 𝗗𝗼𝗿𝘁𝗺𝘂𝗻𝗱 🐝  
+- 𝗕𝗮𝘆𝗲𝗿𝗻 🍓  
 
-## Selections that I support (from "-" down only for the 2026 World Cup if they qualify) — "♡" my country and a country that I love very much
+*(P.S.: I LOVE BELLINGHAM BROTHERS RAWRR)*  
 
-𝗨𝗿𝘂𝗴𝘂𝗮𝘆 🇺🇾 ♡ (OBVIOUSLY, IT'S MY COUNTRY)
+---
 
-↑↓
+## ୨ National Teams I Support ৎ  
+*(from "•" downward only for the 2026 World Cup if they qualify)*  
+♡ = my country / country I love a lot
 
-𝗜𝘁𝗮𝗹𝘆 🇮🇹 ♡
+ **Uruguay 🇺🇾 ♡**  
+ **Italy 🇮🇹 ♡**  
+• **Denmark 🇩🇰**  
+• **Netherlands 🇳🇱**
 
-- 𝗗𝗲𝗻𝗺𝗮𝗿𝗸 🇩🇰
+---
 
-- 𝗡𝗲𝘁𝗵𝗲𝗿𝗹𝗮𝗻𝗱𝘀 🇳🇱
-____________________
-# 𝗟𝗶𝗸𝗲's;;
+<div align="center">
 
-MK — 11, X, 9 (𝗜 𝗹𝗼𝘃𝗲 𝗦𝘂𝗯 𝗭𝗲𝗿𝗼 (𝗲𝘀𝗽𝗲𝗰𝗶𝗮𝗹𝗹𝘆 𝗕𝗶-𝗛𝗮𝗻) 𝗮𝗻𝗱 𝘁𝗵𝗲 𝗲𝗻𝘁𝗶𝗿𝗲 𝗟𝗶𝗻 𝗞𝘂𝗲𝗶 𝗰𝗹𝗮𝗻. 𝗛𝗔𝗧𝗘𝗥 𝗢𝗙 𝗦𝗖𝗢𝗥𝗣𝗜𝗢𝗡 𝗔𝗡𝗗 𝗔𝗟𝗟 𝗧𝗛𝗘 𝗥𝗔𝗧𝗦 𝗢𝗙 𝗧𝗛𝗘 𝗦𝗛𝗜𝗥𝗔𝗜 𝗥𝗬𝗨 𝗖𝗟𝗔𝗡 🧊)
+︶⊹︶︶୨୧︶︶⊹︶︶︶︶୨୧︶︶⊹︶︶⊹
+  
+# ୨ 𝗟𝗶𝗸𝗲'𝘀 ৎ  
 
-KA (Kengan Ashura) — Love Rain, Wu Xing, Rei and Ryo ((𝗬𝗲𝘀, 𝗜 𝗿𝗲𝗮𝗹𝗹𝘆 𝗹𝗶𝗸𝗲 𝗰𝗹𝗮𝗻𝘀)
+</div>
 
-Baki — Love Pickle and Kureha
+### ✦ Mortal Kombat — MK 11, X, 9  
+*I love Sub Zero (especially Bi-Han) and the entire Lin Kuei clan.  
+HATER OF SCORPION AND THE RATS OF SHIRAI RYU 🧊*
 
-Hajime No Ippo — 𝗦𝗨𝗣𝗘𝗥 𝗙𝗔𝗡 𝗢𝗙 𝗦𝗘𝗡𝗗𝗢 𝗧𝗛𝗘 𝗧𝗜𝗚𝗘𝗥 
+### ✦ Kengan Ashura — KA  
+Love Rain, Wu Xing, Rei and Ryo (yes, I really like clans)
 
-Berserk — The manga is so good, ilikegriffithsorry
+### ✦ Baki  
+Pickle + Kureha supremacy
 
-Elfen Lied — I loved it, I really liked it. Although I don't remember much now. (I watched the anime in 2023)
+### ✦ Hajime no Ippo  
+**SUPER FAN OF SENDO THE TIGER**
 
-Dororo — Tahomaru and Hyakkimaru fan here
+### ✦ Berserk  
+The manga is 🔛🔝 (ilikegriffithsorry)
 
-Beyblade Burst — 𝗕𝗶𝗴 𝗳𝗮𝗻 𝗼𝗳 𝗣𝗵𝗶, 𝗜 𝗹𝗼𝘃𝗲 𝘁𝗵𝗲 𝘃𝗶𝗹𝗹𝗮𝗶𝗻𝘀
+### ✦ Elfen Lied  
+Loved it since 2023
 
-Captain Tsubasa (OBVIOUSLY) — 𝗔 𝗳𝗮𝗻 𝘀𝗶𝗻𝗰𝗲 𝗰𝗵𝗶𝗹𝗱𝗵𝗼𝗼𝗱,𝗜 𝗹𝗼𝘃𝗲 𝗡𝗮𝘁𝘂𝗿𝗲𝘇𝗮, 𝗠𝗶𝗰𝗵𝗮𝗲𝗹, 𝗩𝗶𝗰𝘁𝗼𝗿𝗶𝗻𝗼 𝗮𝗻𝗱 𝗔𝗼𝗶 𝘃𝗲𝗿𝘆 𝗺𝘂𝗰𝗵. 𝗜 𝗹𝗼𝘃𝗲 𝗮𝗹𝗹 𝘁𝗵𝗲 𝗮𝗿𝗰𝘀 𝗼𝗳 𝘁𝗵𝗲 𝗺𝗮𝗻𝗴𝗮.
+### ✦ Dororo  
+Tahomaru & Hyakkimaru fan
 
-Uma Musume: Pretty Derby — Big fan since 2021, I honestly love running so I find it very entertaining. I'm not such a fan of the fact that it has exploded in popularity these days...
+### ✦ Beyblade Burst  
+𝗕𝗶𝗴 𝗙𝗮𝗻 𝗼𝗳 𝗣𝗵𝗶 — villains >>>>
 
-What in Hell is Bad? — I am Satan fr fr (𝗱𝗲𝗽𝗿𝗲𝘀𝘀𝗶𝗼𝗻 𝘁𝗼𝗼, 𝗻𝗼𝘁 𝗷𝗸), Beel (𝗔𝗗𝗛𝗗 𝗮𝗻𝗱 𝗢𝗹𝗳𝗮𝗰𝘁𝗼𝗽𝗵𝗶𝗹𝗶𝗮 𝘁𝗼𝗼, 𝘁𝘄𝗶𝗻), Belphegor (𝗼𝗳 𝘁𝗵𝗲 𝘀𝗲𝘃𝗲𝗻 𝗱𝗲𝗮𝗱𝗹𝘆 𝘀𝗶𝗻𝘀: 𝗦𝗹𝗼𝘁𝗵) and Asmodeus (𝗼𝗳 𝘁𝗵𝗲 𝘀𝗲𝘃𝗲𝗻 𝗱𝗲𝗮𝗱𝗹𝘆 𝘀𝗶𝗻𝘀: 𝗟𝘂𝘀𝘁)
+### ✦ Captain Tsubasa  
+Fan since childhood. I love Natureza, Michael, Victorino and Aoi very much.  
+I love all the manga arcs.
+
+### ✦ Uma Musume: Pretty Derby  
+Fan since 2021 (I love running so it hits different)
+
+### ✦ What in Hell is Bad?  
+I am **Satan fr fr** (depresión too lol)  
+Beel (ADHD + Olfactophilia twin),  
+Belphegor (Sloth),  
+Asmodeus (Lust)
+
+---
+
+<div align="center">
+
+╭────────   ʚ♡ɞ   ────────╮
+
+꒰ Je te tiens en mon cœur si fort que nul vent ne  
+    te peut ôter .ᐟ ⟢ 𝗠 🫀 ꒱
+    
+╰────────   ʚ♡ɞ   ────────╯
+
+
+
+⠀⢀⠤⠤⢄⡀⠀⠀⠀⠀⠀⠀⢀⠤⠒⠒⢤  
+⠀⠏⠀⠀⠀⠈⠳⡄⠀⠀⡠⠚⠁⠀⠀⠀⠘⡄  
+⢸⠀⠀⠀⠤⣤⣤⡆⠀⠈⣱⣤⣴⡄⠀⠀⠀⡇  
+⠘⡀⠀⠀⠀⠀⢈⣷⠤⠴⢺⣀⠀⠀⠀⠀⢀⡇  
+⠀⠡⣀⣀⣤⠶⠻⡏⠀⠀⢸⡟⠙⣶⡤⠤⠼  
+⠀⠀⢠⡾⠉⠀⢠⡆⠀⠀⢸⠃⠀⠈⢻⣆  
+⠀⠀⣿⣠⢶⣄⠀⡇⠀⠀⠘⠃⣀⡤⢌⣈⡀⠀  
+⠀⠀⠀⠀⠀⠙⠼⠀⠀⠀⠀⠿⠋  
+
+</div>
