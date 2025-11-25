@@ -23,9 +23,9 @@ Internacional (Only because... Rochet and Prado)
 
 (P.S.: I LOVE BELLINGHAM BROTHERS RAWRR) 
 
-## Selections that I support (from "-" down only for the 2026 World Cup if they qualify)
+## Selections that I support (from "-" down only for the 2026 World Cup if they qualify) — "♡" my country and a country that I love very much
 
-𝗨𝗿𝘂𝗴𝘂𝗮𝘆 🇺🇾 (OBVIOUSLY, IT'S MY COUNTRY ♡)
+𝗨𝗿𝘂𝗴𝘂𝗮𝘆 🇺🇾 ♡ (OBVIOUSLY, IT'S MY COUNTRY)
 
 ↑↓
 
@@ -33,7 +33,7 @@ Internacional (Only because... Rochet and Prado)
 
 - 𝗗𝗲𝗻𝗺𝗮𝗿𝗸 🇩🇰
 
-- 𝗖𝗵𝗶𝗻𝗮 🇨🇳
+- 𝗡𝗲𝘁𝗵𝗲𝗿𝗹𝗮𝗻𝗱𝘀 🇳🇱
 ____________________
 # 𝗟𝗶𝗸𝗲's;;
 
@@ -45,8 +45,6 @@ Baki — Love Pickle and Kureha
 
 Hajime No Ippo — 𝗦𝗨𝗣𝗘𝗥 𝗙𝗔𝗡 𝗢𝗙 𝗦𝗘𝗡𝗗𝗢 𝗧𝗛𝗘 𝗧𝗜𝗚𝗘𝗥 
 
-Ashita No Joe — Fan of the protagonist
-
 Berserk — The manga is so good, ilikegriffithsorry
 
 Elfen Lied — I loved it, I really liked it. Although I don't remember much now. (I watched the anime in 2023)
@@ -55,6 +53,8 @@ Dororo — Tahomaru and Hyakkimaru fan here
 
 Beyblade Burst — 𝗕𝗶𝗴 𝗳𝗮𝗻 𝗼𝗳 𝗣𝗵𝗶, 𝗜 𝗹𝗼𝘃𝗲 𝘁𝗵𝗲 𝘃𝗶𝗹𝗹𝗮𝗶𝗻𝘀
 
-Captain Tsubasa (OBVIOUSLY) — 𝗔 𝗳𝗮𝗻 𝘀𝗶𝗻𝗰𝗲 𝗰𝗵𝗶𝗹𝗱𝗵𝗼𝗼𝗱, 𝗜 𝗹𝗼𝘃𝗲 𝗛𝘆𝘂𝗴𝗮, 𝗦𝗮𝗻𝘁𝗮𝗻𝗮 𝗮𝗻𝗱 𝗔𝗼𝗶 𝘀𝗼 𝗺𝘂𝗰𝗵. 𝗜 𝗹𝗼𝘃𝗲 𝗮𝗹𝗹 𝘁𝗵𝗲 𝗮𝗿𝗰𝘀 𝗼𝗳 𝘁𝗵𝗲 𝗺𝗮𝗻𝗴𝗮.
+Captain Tsubasa (OBVIOUSLY) — 𝗔 𝗳𝗮𝗻 𝘀𝗶𝗻𝗰𝗲 𝗰𝗵𝗶𝗹𝗱𝗵𝗼𝗼𝗱,𝗜 𝗹𝗼𝘃𝗲 𝗡𝗮𝘁𝘂𝗿𝗲𝘇𝗮, 𝗠𝗶𝗰𝗵𝗮𝗲𝗹, 𝗩𝗶𝗰𝘁𝗼𝗿𝗶𝗻𝗼 𝗮𝗻𝗱 𝗔𝗼𝗶 𝘃𝗲𝗿𝘆 𝗺𝘂𝗰𝗵. 𝗜 𝗹𝗼𝘃𝗲 𝗮𝗹𝗹 𝘁𝗵𝗲 𝗮𝗿𝗰𝘀 𝗼𝗳 𝘁𝗵𝗲 𝗺𝗮𝗻𝗴𝗮.
 
 Uma Musume: Pretty Derby — Big fan since 2021, I honestly love running so I find it very entertaining. I'm not such a fan of the fact that it has exploded in popularity these days...
+
+What in Hell is Bad? — I am Satan fr fr (𝗱𝗲𝗽𝗿𝗲𝘀𝘀𝗶𝗼𝗻 𝘁𝗼𝗼, 𝗻𝗼𝘁 𝗷𝗸), Beel (𝗔𝗗𝗛𝗗 𝗮𝗻𝗱 𝗢𝗹𝗳𝗮𝗰𝘁𝗼𝗽𝗵𝗶𝗹𝗶𝗮 𝘁𝗼𝗼, 𝘁𝘄𝗶𝗻), Belphegor (𝗼𝗳 𝘁𝗵𝗲 𝘀𝗲𝘃𝗲𝗻 𝗱𝗲𝗮𝗱𝗹𝘆 𝘀𝗶𝗻𝘀: 𝗦𝗹𝗼𝘁𝗵) and Asmodeus (𝗼𝗳 𝘁𝗵𝗲 𝘀𝗲𝘃𝗲𝗻 𝗱𝗲𝗮𝗱𝗹𝘆 𝘀𝗶𝗻𝘀: 𝗟𝘂𝘀𝘁)
