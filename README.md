@@ -85,6 +85,8 @@ I love all the manga arcs.
 ### ✦ Uma Musume: Pretty Derby  
 Fan since 2021 (I love running so it hits different)
 
+![Trainer Card](https://i.pinimg.com/1200x/2e/f6/33/2ef6332a67e0d6cf7a5db10faf32483a.jpg)
+
 ### ✦ What in Hell is Bad?  
 I am **Satan fr fr** (depresión too lol)  
 Beel (ADHD + Olfactophilia twin),  
