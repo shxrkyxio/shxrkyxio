@@ -93,6 +93,12 @@ Beel (ADHD + Olfactophilia twin),
 Belphegor (Sloth),  
 Asmodeus (Lust)
 
+### ✦ Gangsta
+I LOVE DOUG and also Brown cuz he reminds me of my bf <3
+
+### ✦ Hellsing (Ultimate)
+I watched it many years ago, Schrödinger it's so cool
+
 ---
 
 <div align="center">
