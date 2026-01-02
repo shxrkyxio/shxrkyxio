@@ -31,7 +31,7 @@ Stadium capacity based on the capacity of **Maracanã Stadium** | Rio de Janeiro
 ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [listography](https://listography.com/shxrkyxio?m=6404158689)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [colormytree](https://colormytree.me/2025/01KB9CDV184ZQSJD9BRPZNN1Q3)‎ ‎‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://shxrkyxio.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎         [magma](https://magma.com/invite/26S28BM0)‎ ‎ ‎ ‎ ‎
  <div align="center"
 
-➲ 𝗠𝘆 𝗽𝗼𝗼𝗸𝗶𝗲𝘀 𝗰𝗼𝗹𝗹𝗲𝗰𝘁𝗶𝗼𝗻: @oceanlifee
+➲ 𝗠𝘆 𝗽𝗼𝗼𝗸𝗶𝗲𝘀 𝗰𝗼𝗹𝗹𝗲𝗰𝘁𝗶𝗼𝗻: @oceanLiife, @cremelies, @KissUagain, @sunnyvilla, @otterhop, @SailorBuro, @AD0KOU, @missingchildren, @lovethreat, @voltaction, @cipherites, @
 
 
 ![We are going to win](https://img.shields.io/badge/We%20are%20going%20to%20win-0-EB7F00?style=for-the-badge)
